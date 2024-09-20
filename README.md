@@ -1,0 +1,2 @@
+- 👋 Hi, I’m ✨ @bytegeistmedia ✨
+- 👀 Bytegeist Media is committed to providing Canadians with accurate, informative content that addresses critical issues through a progressive lens. Our mission is to uphold journalistic integrity and promote transparency while fostering meaningful dialogue around political and social matters affecting our nation.
